@@ -1,0 +1,1 @@
+# technikalmind.github.io
